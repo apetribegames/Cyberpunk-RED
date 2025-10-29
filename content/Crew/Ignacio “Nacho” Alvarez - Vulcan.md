@@ -1,3 +1,7 @@
+---
+aliases:
+  - Nacho
+---
 **Name**: Ignacio “Nacho” Alvarez
 **Handle**: Vulcan
 **Player**: Rice

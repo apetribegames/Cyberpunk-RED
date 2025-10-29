@@ -1,4 +1,8 @@
-**Name**: Lothair Saint-Cy
+---
+aliases:
+  - Bullpen
+---
+**Name**: Lothair Saint-Cyr
 **Handle**: Bullpen
 **Alias**: Leonard “Leo” Hughes
 **Player**: Kevin

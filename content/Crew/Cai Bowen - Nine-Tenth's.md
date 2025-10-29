@@ -1,3 +1,7 @@
+---
+aliases:
+  - Cai
+---
 **Name**: Cai Bowen
 **Handle**: Nine-Tenth’s
 **Player**: Jeff
