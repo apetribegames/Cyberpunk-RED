@@ -4,4 +4,4 @@ aliases:
 ---
 A device given to [[the Crew]] by [[Ohashi]] to track the [[Memory Chip|memory chip]] he wants retrieved. It’s handheld, with a screen and some dials, and shows a glowing dot marking the location of the [[Memory Chip|memory chip]] overlayed on top of a wireframe map of Night City.
 
-[[Ignacio “Nacho” Alvarez - Vulcan|Nacho]] inspected the tracker and deduced that it was built to track objects broadcasting over a specific frequency. It looks like it could be pre-war technology.
+[[Ignacio 'Nacho' Alvarez - Vulcan|Nacho]] inspected the tracker and deduced that it was built to track objects broadcasting over a specific frequency. It looks like it could be pre-war technology.
