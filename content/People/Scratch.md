@@ -1,0 +1,1 @@
+A mysterious Netrunner and the rumored leader of the [[Pack Rats]].
