@@ -1,0 +1,2 @@
+
+A well-respected ex-merc who owns [[Smoke & Mirrors]]. Billy is a Black man in his mid-50s with a bushy black beard and one entirely black Cybereye. There's some debate about whether his name is Billy "Blackeye" or Billy "Black Guy" but no one really wants to ask him to clarify. He’s often found sitting in one of the booths of his bar near the back of the room, facing the front door. 

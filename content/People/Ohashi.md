@@ -1,0 +1,3 @@
+The Crew’s mysterious new employer. Ohashi is a chain-smoking Japanese man in his early-60s. He's bald, wears an old, wrinkled suit, and small circular sunglasses.
+
+In [[Session 1]], Ohashi hired the Crew to retrieve a [memory chip](https://www.notion.so/Memory-Chip-1a984eb0b3298019b37cc07bccb330e9?pvs=21) from a [Pack Rat](https://www.notion.so/Pack-Rats-1a884eb0b32980c38b35c8cdb2923e14?pvs=21) compound using a [tracker](https://www.notion.so/Ohashi-s-Tracker-1a984eb0b3298074a033e6b97a945149?pvs=21) that he provided. He was cagey when asked questions, but offered 1,000eb for person for the job.

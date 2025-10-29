@@ -1,0 +1,1 @@
+The usual bartender at [[Smoke & Mirrors]]. Czarli is a tall, fat, Polish man in his early-60s, with a great sense of humor, and a beer tap built into his Cyberarm.
