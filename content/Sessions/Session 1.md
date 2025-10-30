@@ -4,3 +4,5 @@
 **Player Notes**
 - [[Ignacio 'Nacho' Alvarez - Vulcan|Nacho]] inspected the [[Ohashi's Tracker|tracker]] and deduced that it was built to track objects broadcasting over a specific frequency. It looks like it could be pre-war technology.
 - [[Cai Bowen - Nine-Tenth's|Cai]] narrowly lost an arm wrestling contest to [[Leonard 'Leo' Hughes - Bullpen|Bullpen]] and received an amateurish tattoo of nine-tenth’s of a pie slice as part of a bet.
+
+[[Session 2|Next Session ->]]
