@@ -1,4 +1,4 @@
-![Image](https://i.imgur.com/JYGQUEZ.png)
+![image](https://imgur.com/GWbHy7N.png)
 **Name**: Darika Koda
 **Handle**: Dakoda
 **Player**: Margo
