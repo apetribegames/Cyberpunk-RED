@@ -1,3 +1,3 @@
 An out-of-the-way dive bar in Heywood Docks frequented by mercs and fixers, including [[Oswaldo 'Ozzie' Ortiz|Ozzie]]. True to its name, the air inside is always heavy with cigarette smoke and the walls and ceiling are lined with mirrors.
 
-Smoke & Mirrors is owned by an ex-merc named [[Billy Blackeye (Black Guy)|Billy Blackeye/Black Guy]], who's often found sitting in one of the booths near the back of the room, facing the front door. [[Czarli]] is the regular bartender.
+Smoke & Mirrors is owned by an ex-merc named [[Billy Blackeye (Black Guy)|Billy Blackeye]], who's often found sitting in one of the booths near the back of the room, facing the front door. [[Czarli]] is the regular bartender.
