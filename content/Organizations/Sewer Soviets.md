@@ -1,1 +1,1 @@
-A neo-Soviet scavenger group led by [[Ruslan Sheripov]]. Their headquarters are allegedly hidden in the sewer system beneath Little China and the Hot Zone.
+A neo-Soviet scavenger group led by [[Ruslan Sheripov]]. Their headquarters are allegedly hidden somewhere in the sewer system beneath Little China and the Hot Zone.
